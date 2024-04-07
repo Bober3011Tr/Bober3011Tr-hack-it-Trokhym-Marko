@@ -1,2 +1,1 @@
-# Bober3011Tr-hack-it-Trokhym-Marko
-NEW
+# hack-it-Trokhym-Marko
